@@ -1,0 +1,7 @@
+- 👋 Hi, I’m Williams
+- 👀 I’m interested in digital forensics
+- 🌱 I’m currently learning digital forensics
+- 📫 How to reach me:
+- Linkedin: linkedin.com/in/williams-kosasi-838424201
+- Medium: medium.com/@williamskosasi
+- YouTube: youtube.com/channel/UCE2DN9_r4wzK68yZ-7CIOBA
